@@ -1,4 +1,4 @@
-### I Hate Niggers
+### I Love Chocolate
 
 <!--
 **herons202/herons202** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
